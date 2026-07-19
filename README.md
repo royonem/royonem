@@ -1,7 +1,9 @@
 ## Hi there 👋
 
 I'm Roy, a junior backend developer in the middle of a career change.
+
 What I lack in coding experience, I make up for with my passion and precision.
+
 Being bilingual, I provide unique perspectives and talents to my skill set!
 
 ---
