@@ -6,6 +6,11 @@ What I lack in coding experience, I make up for with my passion and precision.
 
 Being bilingual, I provide unique perspectives and talents to my skill set!
 
+Fun facts: 
+1. I enjoy playing and watching sports! (Basketball, Baseball, American Football)
+2. I've lived in America, Korea, and Canada!
+3. I'm also passionate about helping others and the environment!
+
 ---
 
 My Skill Stack
